@@ -1,0 +1,1 @@
+# Sequencia_Ricci
